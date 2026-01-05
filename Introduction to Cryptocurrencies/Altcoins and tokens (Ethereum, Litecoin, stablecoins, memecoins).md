@@ -1,4 +1,4 @@
-# Exploring Cryptocurrency Types: Coins, Tokens & Top Assets for 2025
+# Exploring Cryptocurrency Types: Coins, Tokens & Top Assets for 2026
 
 With over 22,000 cryptocurrencies in circulation, understanding crypto types is essential for investors and enthusiasts alike. From foundational payment coins like Bitcoin and Litecoin to versatile utility tokens, stablecoins, CBDCs, altcoins, meme coins, privacy coins, DeFi tokens, and NFTs, each serves a unique purpose in the blockchain ecosystem.  
 
